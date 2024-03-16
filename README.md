@@ -5,6 +5,9 @@
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
+Cricket 
+Ball
+oh my god'
 
 <!---
 Kumarshivam1344/Kumarshivam1344 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
